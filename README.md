@@ -31,5 +31,5 @@ etc.).
 
 to finish this test they gave me 7 days, 
 but when i contacted touchten, they will give me more time if i haven't finished the code.
-until now 2022 july 01 there is no news if they accept me as their employee or not from touchten or even from geekhunter, 
-when i contact geekhunter, he only say to follow up and still same , no news
+unfortuneately until now 2022 july 01 there is no news if they accept me as their employee or not from touchten or even from geekhunter, 
+when i contact geekhunter, he only said to keep follow up and still same, no news
